@@ -65,6 +65,5 @@ This project aimed to identify the most promising countries for international re
 ## 📬 Contact
 
 Kathy Senkumba  
-✉️ [Your Email]  
+✉️ kathynassuna@gmail.com 
 🔗 [LinkedIn](https://www.linkedin.com/in/kathy-senkumba-08b5a8a5)
-# badassatron
